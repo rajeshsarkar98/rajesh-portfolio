@@ -27,9 +27,9 @@ I am eager to apply my robust front-end proficiency and growing full-stack knowl
 
 Feel free to connect with me for collaborations, inquiries, or job opportunities.
 
-* **Email:** rajesh.sarkar@example.com
-* **Phone:** +91 98765 43210
-* **Location:** Berhampore, West Bengal, India
+* **Email:** rajeshkumarsarkar36@gmail.com
+* **Phone:** +91 73639 20402
+* **Location:** Kolkata, West Bengal, India
 
 You can also reach out to me directly through the contact form available on this website.
 
